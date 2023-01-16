@@ -1,7 +1,11 @@
-![baso tahu 212](https://user-images.githubusercontent.com/122766064/212600068-5041a68a-eb26-4f73-b50f-743b560bcf65.jpg)
+![ayam goreng](https://user-images.githubusercontent.com/122766064/212613157-2f9256f2-1927-4e78-9fa1-4414e8323170.jpg)
 
-![batagor 212](https://user-images.githubusercontent.com/122766064/212600091-bda73fda-e495-49b4-924a-e5340897a47e.jpg)
+![batagor kering](https://user-images.githubusercontent.com/122766064/212613169-cf0c3061-51df-43d0-b5e4-1dcc37064429.jpg)
 
-![roti tawar212](https://user-images.githubusercontent.com/122766064/212600115-c0aed2cb-412f-4ee1-9ed1-972477119333.png)
+![batagor kuah](https://user-images.githubusercontent.com/122766064/212613187-94239716-d45e-40f0-afb2-85de298afefa.jpeg)
 
-![minuman 212](https://user-images.githubusercontent.com/122766064/212600140-24190663-006a-4e27-9e57-dff81bf372a5.jpg)
+![mie ayam](https://user-images.githubusercontent.com/122766064/212613202-d43a7136-1481-4baf-9fb0-69e0206f44aa.jpg)
+
+![nasi kuning](https://user-images.githubusercontent.com/122766064/212613213-664de4f5-20b1-4c4b-8947-457b4cee40ce.jpg)
+
+![nasi uduk](https://user-images.githubusercontent.com/122766064/212613222-9645b311-c646-4977-a604-de88fea2c551.jpg)
