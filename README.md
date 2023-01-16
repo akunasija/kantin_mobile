@@ -9,3 +9,5 @@
 ![nasi kuning](https://user-images.githubusercontent.com/122766064/212613213-664de4f5-20b1-4c4b-8947-457b4cee40ce.jpg)
 
 ![nasi uduk](https://user-images.githubusercontent.com/122766064/212613222-9645b311-c646-4977-a604-de88fea2c551.jpg)
+
+![qr code](https://user-images.githubusercontent.com/122766064/212621985-af086c4d-1b8b-448f-8778-f42194902591.png)
