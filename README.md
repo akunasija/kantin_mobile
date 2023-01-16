@@ -11,3 +11,5 @@
 ![nasi uduk](https://user-images.githubusercontent.com/122766064/212613222-9645b311-c646-4977-a604-de88fea2c551.jpg)
 
 ![qr code](https://user-images.githubusercontent.com/122766064/212621985-af086c4d-1b8b-448f-8778-f42194902591.png)
+
+![baso tahu](https://user-images.githubusercontent.com/122766064/212625757-741c012d-cfe3-4669-82ea-85b5ead6dba8.jpg)
